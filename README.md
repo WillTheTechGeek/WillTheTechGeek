@@ -5,4 +5,4 @@ We are also massively passionate about getting young people into IT and Computer
 I was very young when I got into tech and where I am now was a pipe dream.
 
 
--WL (Manager of Will the Tech Geek)
+-WL (Director of Will the Tech Geek)
